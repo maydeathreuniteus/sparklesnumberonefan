@@ -3,6 +3,6 @@
 > 
 > discord; sock0544
 > 
-> mattpat enthusiasts, anyone?
+> mizuena enthusiasts, anyone?
 > 
 > fun fact; i procastinate a lot
